@@ -1,7 +1,5 @@
-# bosmofurniture.lk
-#Business plan.
 
-B o s M o  :) Furnitures  
+# B O S M O  :) Furnitures  
 
 
 
